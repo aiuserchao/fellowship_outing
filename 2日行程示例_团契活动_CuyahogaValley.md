@@ -98,8 +98,11 @@
 ## 重要提醒与建议
 
 ### 住宿准备
+- **已确认酒店**：
+  1. Staybridge Suites Akron-Stow-Cuyahoga Falls by IHG
+  2. Home2 Suites by Hilton Stow Akron
 - **立即行动**：7月4日周末附近酒店紧张，请尽快预订
-- **推荐区域**：Peninsula村附近、Akron北部或Cleveland南部
+- **推荐区域**：Peninsula村附近、Akron北部或Cleveland南部（含以上两家酒店）
 - **注意**：确认是否提供早餐、停车便利性及取消政策
 
 ### 必备物品清单
