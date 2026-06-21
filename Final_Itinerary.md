@@ -1,77 +1,117 @@
-# Cuyahoga Valley Fellowship Outing
-## July 3-4, 2026 (Friday-Saturday)
+# 小羊团契2026年7月3-4日公园出游最终行程
 
-**Destination**: Cuyahoga Valley National Park, Ohio  
-**Accommodations**: Staybridge Suites & Home2 Suites (adjacent hotels)  
-**Transportation**: Self-drive (each family)
-
----
-
-## 📅 Schedule
-
-### Day 1 – Friday, July 3
-- **3:00–4:00 PM** – Depart from Michigan
-- **4:30–5:30 PM** – Arrive, check into hotel  
-  (Staybridge Suites or Home2 Suites)
-- **5:30–7:00 PM** – Free time: explore hotel area, prep picnic food, or relax
-- **7:00–8:00 PM** – Welcome dinner & fellowship sharing (TBD: prayer/worship)
-- **8:00–9:00 PM** – Nighttime preparations
-
-### Day 2 – Saturday, July 4 (Independence Day)
-- **7:00–8:00 AM** – Depart hotel (meet 15 min early)
-- **8:15–9:00 AM** – Arrive at Boston Mill Visitor Center  
-  – Pick up picnic shelter key code (Ledges or Octagon Shelter)
-- **9:15–11:30 AM** – Set up at picnic shelter, free time
-- **11:30 AM–1:00 PM** – Fellowship lunch & sharing time
-- **1:00–1:30 PM** – Post-lunch rest & free activities
-- **1:30–3:30 PM** – Group hike (split by ability):
-  - *Families with young children*: Shelter-area grass games
-  - *Easy*: Ohio & Erie Canal Towpath Trail (flat)
-  - *Moderate*: Ledges Trail (2.2-mile loop)
-- **3:30–4:00 PM** – Rest & rehydrate
-- **4:00–4:30 PM** – Depart for return trip
-- **4:30–5:00 PM** – Optional rest stop
-- **6:30–7:00 PM** – Arrive back in Michigan, closing fellowship (TBD)
+**目的地**：Cuyahoga Valley National Park，俄亥俄州  
+**住宿**：Staybridge Suites & Home2 Suites（相邻两家酒店）  
+**交通**：自驾（每个家庭独立驾车）
 
 ---
 
-## 🏨 Hotel Information
-Both hotels are on the same road, separated by one street.
+## 📅 行程安排
 
-### Staybridge Suites Akron-Stow-Cuyahoga Falls by IHG
-- **Address**: 4351 Steels Pointe Drive, Stow, OH
-- **Phone**: (330) 498-2600
-- **Amenities**: Indoor heated pool (7am–11pm), free hot breakfast, free WiFi, fitness center, outdoor BBQ pavilion, 24/7 business center, full kitchens in suites
+### 第一天 – 2026年7月3日（星期五）
+- **15:00–16:00** – 从密歇根出发
+- **16:30–17:30** – 抵达并办理酒店入住手续  
+  （Staybridge Suites 或 Home2 Suites）
+- **17:30–19:00** – 自由活动时间：酒店周边散步、准备野餐食材或在酒店简餐
+- **19:00–20:00** – 欢迎晚餐及团契分享（待定：祷告和敬拜）
+- **20:00–21:00** – 夜间休息准备
 
-### Home2 Suites by Hilton Stow Akron
-- **Address**: 4097 Bridgewater Parkway, Stow, OH 44224
-- **Phone**: (330) 835-6400
-- **Amenities**: Free hot breakfast, free WiFi, fitness center, pet-friendly, shared lounge, BBQ facilities
-
-## 📝 Important Reminders
-- **July 4th Busyness**: Expect heavy crowds; arrive early to secure parking and reserve your picnic shelter.
-- **Picnic Shelter Reservation**: Required for Ledges or Octagon Shelter; book in advance.
-- **Hotel Booking**: Reserve ASAP—July 4th weekend fills quickly. Mention fellowship for possible group rates.
-- **Weather**: Prepare for possible afternoon thunderstorms (July in Ohio).
-
-## 🎒 Packing List
-- **Fellowship**: Bible, notebook, worship songs, guitar (if available)
-- **Personal**: ID, medications, sunscreen, bug spray, rain gear
-- **Team Supplies**: First-aid kit, wipes, trash bags (pack out all trash), extra water
-- **Gear**: Comfortable walking shoes, hat, swimsuit (if hotel pool used), camera/phone
-
-## 🛡️ Safety & Order
-- **Leaders**: Assign 2–3 people for logistics, safety, and spiritual oversight.
-- **Communication**: Create a WhatsApp or Messenger group for real-time updates.
-- **Emergency**: Know locations of Cleveland Clinic or Akron General hospitals.
-- **Child Supervision**: Ensure adequate adult-to-child ratio at all times.
-
-## 📞 Contact
-For urgent needs, reach out to Fellowship Coordinator Kevin Fan.
+### 第二天 – 2026年7月4日（星期六，独立日）
+- **07:00–08:00** – 从酒店出发（建议提前15分钟集合）
+- **08:15–09:00** – 抵达波士顿米勒游客中心（Boston Mill Visitor Center）  
+  – 领取野餐遮蔽所钥匙码（Ledges 或 Octagon 遮蔽所）
+- **09:15–11:30** – 抵达并设营野餐遮蔽所  
+  – 布置团契区域（放置垫子、准备饮品等）
+  – 自由活动时间：熟悉环境、轻松交流
+- **11:30–13:00** – 团契午餐及分享时间  
+  – 自带便当或简易餐食在遮蔽所内用餐  
+  – 指定时间进行小组分享（可分3-4小组）：
+    * 每人分享一句本周感谢神的话题（2-3分钟/人）
+    * 或围绕"团契中的主爱"主题进行分享
+- **13:00–13:30** – 餐后休息及自由活动  
+  – 可选择：散步、拍照、轻度运动（飞盘、羽毛球等）
+- **13:30–15:30** – 徒步活动小组（可根据体力分组，特别考虑带小孩家庭）  
+  - **婴幼儿家庭专享组**：遮蔽所周边草地区域活动  
+    * 婴儿爬行游戏、泡泡游戏、简易接球（遮蔽所附近安全草地）  
+    * 家长可交替看护，部分时间参与其他活动  
+  - **轻松路线组**：Ohio & Erie Canal Towpath Trail（平坦，适合所有年龄）  
+    * 从遮蔽所出发，徒步2-3英里往返  
+    * 沿途观察运河遗迹、自然景观  
+    * 可进行"自然中的神创造"观察分享  
+    * 特别适合使用婴儿背抱篮的家庭  
+  - **中等难度组**：Ledges Trail圈线（2.2英里，中等难度）  
+    * 探索 Sharon conglomerate 石崖  
+    * 良好拍照点和团契交流机会  
+    * 建议婴幼儿家庭使用背抱篮或选择较短路段  
+  - **注意**：请保持团队在视线范围内，设定集合点和时间
+- **15:30–16:00** – 休息及补水时间（在遮蔽所或返回途中）
+- **16:00–16:30** – 出发返程  
+  - 集合点确认及最后合影留念（可在遮蔽所或显著地标前）
+- **16:30–17:00** – 中途休息点（可选）  
+  - 在半途服务区或合适地点简单休息  
+  - 轮流驾驶者更换，补给水果零食
+- **18:30–19:00** – 预计抵达密歇根，解散  
+  - 简短结束团契时间（待定）及下次团契活动预告  
+  - 提醒大家整理照片并分享在团契群内（如适用）
 
 ---
 
-*This itinerary prepared by OpenClaw Assistant per Kevin Fan’s request, based on research of Cuyahoga Valley National Park.  
-For questions or updates, please reach out!*
+## 🏨 酒店信息
+两家酒店位于同一条路上，相隔仅一条马路，非常方便！
 
-*Last updated: 2026-06-20 11:41 EST*
+### 酒店1：Staybridge Suites Akron-Stow-Cuyahoga Falls by IHG
+- **地址**：4351 Steels Pointe Drive, Stow, OH
+- **电话**：(330) 498-2600
+- **设施**：室内恒温游泳池（早上7点–晚上11点）、免费热早餐、免费WiFi、健身中心、室外烧烤亭、24小时商务中心、套房内含完整厨房
+- **特色**：适合长期住宿，提供完整厨房
+
+### 酒店2：Home2 Suites by Hilton Stow Akron
+- **地址**：4097 Bridgewater Parkway, Stow, OH 44224
+- **电话**：(330) 835-6400
+- **设施**：免费热早餐、免费WiFi、健身中心、宠物友好、共享休息区、烧烤设施
+- **特色**：宽敞套房，适合家庭入住
+
+### 酒店位置关系
+- 两家酒店位于同一条路上（Steels Pointe Drive 和 Bridgewater Parkway），相隔仅一条马路
+- 距离Cuyahoga Valley National Park约8英里（约15分钟车程）
+- 附近有餐厅和购物场所
+
+### 住宿建议
+- 请团契成员根据各自家庭情况选择入住其中一家酒店
+- 两家酒店都提供免费早餐
+- 建议提前预订，7月4日假期期间房源紧张
+- 预订时说明是教会团契活动，可能有团体优惠
+
+---
+
+## ⚠️ 重要提醒
+
+### 7月4日特别注意事项
+- 7月4日是美国独立日，园区将非常繁忙
+- 请务必提前预约野餐遮蔽所
+- 建议早到以确保停车位
+- 两家酒店都含免费早餐，请当天早上吃完早餐再出发
+
+### 必备物品清单
+- **团契相关**：圣经、笔记本、敬拜歌曲、吉他（如有）
+- **个人用品**：身份证、药品、防晒霜、驱虫剂、雨具（七月仍可能有雷阵雨）
+- **团队装备**：急救包、湿巾、垃圾袋（带走所有垃圾）、额外饮用水
+- **活动装备**：舒适步行鞋、帽子、泳装（如酒店有泳池可考虑）、相机/手机
+
+### 安全与秩序
+- 负责人将指定2-3人负责不同方面（后勤、安全、灵修）
+- 建立微信群或WhatsApp群实时通讯
+- 应急知道最近医院位置（Cleveland Clinic 或 Akron General 医院）
+- 儿童参与请确保 adequate supervision 比例
+
+---
+
+## 📞 联系方式
+
+如有紧急情况，请联系团契组长 Kevin。
+
+---
+
+此行程单由 OpenClaw 助理根据 Kevin Fan 的需求创建，基于对 Cuyahoga Valley National Park 的研究分析。如需修改或补充，请随时告知！
+
+最后更新：2026-06-20 11:41 EST
