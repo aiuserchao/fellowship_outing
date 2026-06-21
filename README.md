@@ -4,7 +4,7 @@
 
 ## 最终确认行程
 
-- **[2026July4_最终行程_团契出游.md](./2026July4_最终行程_团契出游.md)** ⭐ **最终版本** - 包含所有已确认信息，请所有成员查阅！
+- **[2026July4_Final_Itinerary_Fellowship_Outing.md](./2026July4_Final_Itinerary_Fellowship_Outing.md)** ⭐ **最终版本** - 包含所有已确认信息，请所有成员查阅！
 
 ## 活动已确认信息
 
@@ -33,7 +33,7 @@
 
 1. 请所有团契成员尽快预订酒店（7月4日假期期间房源紧张）
 2. 预订完成后，请在团契群里告知
-3. 查看[最终行程文档](./2026July4_最终行程_团契出游.md)了解详细行程安排
+3. 查看[最终行程文档](./2026July4_Final_Itinerary_Fellowship_Outing.md)了解详细行程安排
 
 ## 活动概述
 
@@ -51,8 +51,7 @@
 
 ## 历史文档
 
-- [2日行程示例_团契活动_CuyahogaValley.md](./2日行程示例_团契活动_CuyahogaValley.md) - 早期行程示例（仅供参考）
-- [团契活动_公园选择_2026July4.md](./团契活动_公园选择_2026July4.md) - 公园选择过程文档
+- [2-Day_Sample_Itinerary_CuyahogaValley.md](./2-Day_Sample_Itinerary_CuyahogaValley.md) - 早期行程示例（仅供参考）
 
 ---
 
