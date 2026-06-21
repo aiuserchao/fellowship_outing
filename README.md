@@ -51,7 +51,7 @@
 
 ## 历史文档
 
-- [2-Itinerary_CuyahogaValley.md](./2-Itinerary_CuyahogaValley.md) - 早期行程示例（仅供参考）
+- **[Itinerary_CuyahogaValley.md](./Itinerary_CuyahogaValley.md)** - 早期行程示例（仅供参考）
 
 ---
 
